@@ -1,1 +1,1 @@
-# parcial2pazminodiego
+# segundoparcialpazmino
